@@ -1,0 +1,1 @@
+I am redeemed to enjoy open doors as a way of life
