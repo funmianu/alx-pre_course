@@ -1,1 +1,1 @@
-I am redeemed to enjoy open doors as a way of life
+I am redeemed a wonder to my world
